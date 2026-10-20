@@ -1,0 +1,2 @@
+# premium-yeast-lab-001-yeast-starter-culture-propagat
+Stop losing yeast batches to contamination and unpredictable fermentation—the gap between knowing propagation theory and executing it consistently is costing you time and money. The Yeast Starter Culture Propagation Guide closes that gap with a production-ready Notion template built specifically for yeast labs.  This template transforms yeast propa
